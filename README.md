@@ -2,6 +2,6 @@
 
 - Seccion Salud: dermatología (testimonio de usuario transcribida de grabacion de audio)
 - Sección Tecnología
-- Sección Música
+- Sección Música: Heavy metal + Trance Electrónica + Rock Alternativo
 - Sección Caricatura
-- Sección Fotografía/Ciencia
+- Sección Fotografía/Ciencia Natural/Astronomía
